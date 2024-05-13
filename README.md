@@ -1,1 +1,1 @@
-aspiring programmer trying to submerge myself in code
+you know it'd be really cool if i could actually finish a project
